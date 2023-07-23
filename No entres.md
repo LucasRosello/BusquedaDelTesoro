@@ -1,3 +1,3 @@
-¡Epa! No era tan dificil ¿viste?
+¡Epa! ¡No era tan difícil, ¿viste?!
 
-Tu link
+[Tu link](https://2no.co/2rHaT5)
